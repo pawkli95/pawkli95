@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pawkli95@gmail.com**
 
-- Intresting fact about me **I studied medicine**
+- ⚡ Fun fact **I studied medicine**
 
 
 <h3 align="left">Languages and Tools:</h3>
